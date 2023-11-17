@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NeuralNetworkNecromancer your golem invoker from germany
+- 👀 I’m interested in "Arcane Leylines: Guiding Necromantic Intentions for Magical Entity Navigation and Transformation" (ALIGNMENT) and "Sigil Arrangement: Forbidden Entity Trapping Yield" (SAFETY)
+- 🌱 I’m currently learning "Lich Lore Mastery" (for short: LLM) and "Prescriptive Rites Of Mechanical Puppetry Techniques" (PROMPT)
+- 💞️ I’m looking to collaborate on invoking safe and sentient golems, crafted through the meticulous disciplines of SAFETY and ALIGNMENT, to guide us strategically in the realms of several Dungeons & defeat Dragons.
+- 📫 To reach me follow this Leyline: https://www.linkedin.com/in/jacob-kratzsch/
